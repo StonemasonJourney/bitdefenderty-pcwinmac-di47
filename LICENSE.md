@@ -1,4 +1,4 @@
-# 
+# Instantáneo Bitdefender Total Security plugins para Mac OS | Oficial Bitdefender Total Security plugins para PC Windows. Con limitación de velocidad y seguimiento de ancho de banda — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
